@@ -5,11 +5,11 @@
 
 > **idolmaster**
 
->>|THE iDOLM@STER|
-|:-:| 
-|CINDERELLA GIRLS| 
-|MILLION LIVE!|
-|SHINY COLORS|
+>> | THE iDOLM@STER |
+| :------------: | 
+| CINDERELLA GIRLS | 
+| MILLION LIVE! |
+| SHINY COLORS |
 
 # :+1: 
 

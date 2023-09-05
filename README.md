@@ -1,2 +1,7 @@
-# this is homework
-## my name is yun seong hyeon
+# This is homework
+## I like anime and game
+> **gundam**
+
+> **idolmaster**
+
+# :+1: 

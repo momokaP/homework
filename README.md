@@ -5,6 +5,12 @@
 
 > **idolmaster**
 
+>>|THE iDOLM@STER|
+|:-:| 
+|CINDERELLA GIRLS| 
+|MILLION LIVE!|
+|SHINY COLORS|
+
 # :+1: 
 
 <p align="center">

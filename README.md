@@ -5,7 +5,7 @@
 
 > **idolmaster**
 
->> | THE iDOLM@STER |
+| THE iDOLM@STER |
 | :------------: | 
 | CINDERELLA GIRLS | 
 | MILLION LIVE! |
